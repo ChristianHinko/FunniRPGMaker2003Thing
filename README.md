@@ -1,0 +1,1 @@
+# FunniRPGMaker2003Thing
